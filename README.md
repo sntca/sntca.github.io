@@ -1,1 +1,0 @@
-# sntca.github.io
